@@ -2,4 +2,4 @@
 
 Spencer Ganos
 
-All done. :)
+All done. Picture of graph is also on here. :)
